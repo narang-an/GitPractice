@@ -12,6 +12,6 @@ The best place to visit for vacation is ____________
 
 The best Marvel movie is ___________
 
-The best cuisine is Thai
+The best cuisine is thai korean fusion
 
 The best streaming service is _______
